@@ -1,1 +1,0 @@
-# Dicionario-Dados-Cosmeticos-Altivez
